@@ -5,6 +5,10 @@
 
 ![AiArtPictures_1686065945444](https://github.com/nicolau-carboni/nicolau-carboni/assets/136120396/f7d336ee-7f8a-4676-8dac-ee6a3db6e62b)
 
+![AiArt_1686064383140](https://github.com/nicolau-carboni/nicolau-carboni/assets/136120396/1bb87343-a001-47eb-89a6-5613b2d5eae4)
+
+
+
 ![AiArt_1686065686190](https://github.com/nicolau-carboni/nicolau-carboni/assets/136120396/4b3181b0-1a34-4a60-ae02-8dc4ce36168a)
 
 ![AiArtPictures_1686067245101](https://github.com/nicolau-carboni/nicolau-carboni/assets/136120396/17f6753b-a895-4a5d-a9f6-3b33b51a51dc)
