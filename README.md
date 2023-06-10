@@ -1,6 +1,12 @@
 ### ✨✨✨ Hi there 👋
 😜
 
+
+
+![AiArtPictures_1686065945444](https://github.com/nicolau-carboni/nicolau-carboni/assets/136120396/f7d336ee-7f8a-4676-8dac-ee6a3db6e62b)
+
+
+
 <!--
 **nicolau-carboni/nicolau-carboni** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
